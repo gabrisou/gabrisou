@@ -1,7 +1,7 @@
 ### Gabriel Souza aqui :)
 Engenheiro de Produção e apaixonado por Dados e Supply Chain. Atualmente Coordenador de Logística, já trabalhei na área automotiva e de Papel e Celulose.
 
-- 👨🏻‍💻 **Coordenador de Planejamento** de Logística na Sequoia 
+- 👨🏻‍💻 **Coordenador de Planejamento** de Logística na Emergent Cold Latam
 - ⚽ Apaixonado por **Futebol**
 - 📈 Tenho experiência com S&OP,forecast e Planejamento de transportes
 - 📧 Quer entrar em contato comigo?, me mande um email: gabrielsouza1eng@gmail.com
