@@ -1,5 +1,5 @@
 ### Gabriel Souza aqui :)
-Engenheiro de Produção e apaixonado por Dados e Supply Chain. Atualmente Coordenador de Logística, já trabalhei na área automotiva e de Papel e Celulose.
+Engenheiro de Produção e apaixonado por Dados e Supply Chain. Atualmente Coordenador de Transportes, já trabalhei na área automotiva, Papel e Celulose, Planejamento Distribuição de B2B e B2C, e em Transporte de Containers.
 
 - 👨🏻‍💻 **Coordenador de Planejamento** de Logística na Emergent Cold Latam
 - ⚽ Apaixonado por **Futebol**
